@@ -9,5 +9,4 @@ BIO
 
 I'm speaking English not good, so I hope you don't crime me 😅😅
 
-If you want to find more, please to to my [Linkedin profile](https://www.linkedin.com/in/hongphuclam1912/).
-📫 If you want to contact me, please email lamhongphuc191202@gmail.com. Thankiu 🥰🥰
+📫 Please see my [Linkedin profile](https://www.linkedin.com/in/hongphuclam1912/) for additional information. You can reach me by email at lamhongphuc191202@gmail.com. Thankiu
