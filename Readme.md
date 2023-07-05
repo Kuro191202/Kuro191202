@@ -1,5 +1,5 @@
 Hi there 👋👋
-My name's Hong Phuc
+My name's Hong Phuc,
 I work at the Power Electronics Research Laboratory at HCMUT as an embedded engineer and researcher.
 
 BIO
